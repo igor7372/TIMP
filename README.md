@@ -45,4 +45,4 @@
 
 Результаты представлены на скриншоте.
 
-![](https://i.ibb.co/vk6Vk6P/image.png)
+![](https://c.radikal.ru/c37/1905/f0/17a4a688baef.jpg)
